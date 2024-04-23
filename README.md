@@ -27,7 +27,8 @@
 
 ### 耐思云-2024好用靠谱的加速器推荐
 
-![奈絲韻.jpg](https://s2.loli.net/2023/11/21/dFAnPqGciwMJo9W.jpg)  
+![耐思云](https://github.com/VPN-Best/2024-VPN/assets/148308996/62032c8e-7f19-406b-a8bd-7778ddad93d0)
+
 
 [**官方网站注册**](https://go.51tz.cc/nicecloud)  
 1. 基础套餐12元/月；
